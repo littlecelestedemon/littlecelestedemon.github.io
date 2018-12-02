@@ -7,7 +7,7 @@
 
 [You immediatly relax. You understand the format, as this was a childhood game you and your friends would play.] KBG who?
 
-**ve vill ask the questions!** [You jump as they shout, but laugh. You recognize that voice, with the fake accent and corny jokes.]
+**Ve vill ask the questions!** [You jump as they shout, but laugh. You recognize that voice, with the fake accent and corny jokes.]
 
 James! [You shout getting up. You open the door, and there he is. Your best friend.]
 
